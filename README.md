@@ -1,1 +1,1 @@
-https://tiritaki.github.io/rsschool-cv/cv
+https://tiritaki.github.io/rsschool-cv/
