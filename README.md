@@ -1,1 +1,1 @@
-# rsschool-cv
+https://tiritaki.github.io/rsschool-cv/cv
