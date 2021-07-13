@@ -12,7 +12,7 @@ email: rokur.engineering@gmail.com
 https://www.upwork.com/freelancers/~01e8ab4eaf36a27c5c
 
 Airconditioning & Heating International FZE, Ukraine
-Aug. 2006 – Nov. 2009                          Country Sales Manager 
+Aug 2006 – Nov 2009                          Country Sales Manager 
 
 Key Responsibilities are:
 - B2C and B2B Sales of HVAC Equipment (up to 8 MW, up to 160000 sq.m) to Shopping Malls, Class A Business Centres, Luxury Living Apartments, Arenas, Processing Factories 
@@ -27,7 +27,7 @@ and follow company's procedure & policies with regards to Sales/Credit & Recover
 Reference list: BC Parus, BC Gulliver, BC Domotehnika, Mall Mandarin Plaza, Mall Dream Town, Mall Opera Passage Lviv, Apartments Riviera Riverside, Apartments Ambassador House, Apartments Karpatskiy Dim, Aluminium factory in Brovary , FC Dnipro Arena 
 
 # LG Electronics, Ukraine
-Mar. 2005 – Aug.2006                             Marketing Manager
+Mar 2005 – Aug 2006                             Marketing Manager
 
 Key Responsibilities are:
 - Developing and Execution of ATL, BTL and PR campaign (Art Cool)
